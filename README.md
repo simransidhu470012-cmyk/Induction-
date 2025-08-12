@@ -6,7 +6,10 @@ After peacefull "GURBANI" we had snacks.
 Then the days goes like that....
 #10:40-4:00 (AUDITORIUM)
 →#Firstly mister harsimran singh gives their needful lecture about communication skills.culture and sports organised.
+
 →#Then mister sangam arora sir
 (CSE branch topper of 2021-2025)
 He tells us about data structure and provide us other information.
+→# Then Arshpreet Singh
+(from it section automation engineer) they motivate us about life experiences, like never unrestimate yourself. You are the biggest strength for yourself.
 
