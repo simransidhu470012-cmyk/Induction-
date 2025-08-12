@@ -83,6 +83,17 @@ Topic = "UNIVERSAL HUMAN VALUES"
 Mam guided us how to control our anger issues,if we understand anyones situation by think that may be they are in some financial or personal problem in the spite of being angry on them then life becomes more balanced and peacefull.
 
 
+# 5 AUGUST 
+# 9:00 am to 12:00 noon
+ID card formation (outside TCC sem hall)
+There's a schedule for that day but classes was cancelled so that students wont get confused by busy day or they wont get any kind pf confusion.
+
+
+# 6 AUGUST 
+
+
+
+
 
 
 
