@@ -65,7 +65,24 @@ They tell us to maintain daily diet routine because as a student life we should 
 
 # 4 AUGUST 
 # 9:30-10:30 
-Its a lecture in (TCC sem hall ) By prof."RAJVIR KAUR"
+
+Its a lecture in (TCC sem hall ) By prof."RAJVIR KAUR".
+Mam starts lecture with basic of chemistry and our syllabus.She also asks us some subject related questions to test our interest and knowledge.
+
+# 10:30-11:30 
+Then our P2p lecture started by our seniors.They guide us very well about college and our main languages.They also teach us how to interact with people.Its a very good class.
+
+# 11:30-12:30 
+# BREAK
+
+# 12:30-2:30 
+Expert lecture by Priya darshani mam.
+Topic = "UNIVERSAL HUMAN VALUES"
+
+• Mam teachs us that living by personal needed values can lead to a more fulfilling and meaningful life. She discuss humans way of thinking like everyone has different thought in their mind.
+Mam guided us how to control our anger issues,if we understand anyones situation by think that may be they are in some financial or personal problem in the spite of being angry on them then life becomes more balanced and peacefull.
+
+
 
 
 
