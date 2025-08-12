@@ -64,6 +64,9 @@ They tell us to maintain daily diet routine because as a student life we should 
 
 
 # 4 AUGUST 
+# 9:30-10:30 
+Its a lecture in (TCC sem hall ) By prof."RAJVIR KAUR"
+
 
 
 
