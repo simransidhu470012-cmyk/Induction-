@@ -1,4 +1,4 @@
-# 31 july 
+# 31 JULY
 # 8:30-9:30
 Our day starts with the name of god at gurudwara sahib with kirtan.
 
@@ -50,6 +50,16 @@ Intract with seniors
 
 →Then district commission in Ludhiana (pass out 1991~Rakesh Kumar) he tells about that success is not a shortcut successes is a key.
 # So that's how was our first induction day goes.
+
+
+# 1 AUGUST 
+# Food department of HOD 
+They gives needed information to us that food can gives us several advantages and disadvantages according to our body our digest system like some food we have can't be digest in our body because of our way of living our different digestive systems because we all have a different body language different activities in daily life. 
+
+some peoples are too lazy but they have a lot of things they can eat in everyday but some peoples need more male in a day because of their exercises are there help but they could not afford or they could not care about them.
+
+They also share their thoughts about food marketing like real in today's life today's days. we can't be constant about any two things even our homemade food products.
+They tell us to maintain daily diet routine because as a student life we should have a perfect diet so that we study well and our presence of mind most important thing in life. because if we have not good mail then our body can't maintain discipline account maintain patients for study for any other activities.
 
 
 
