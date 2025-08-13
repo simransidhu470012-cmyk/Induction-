@@ -90,6 +90,25 @@ There's a schedule for that day but classes was cancelled so that students wont 
 
 
 # 6 AUGUST 
+# 9:30-10:30 
+Prof. ranveer kaur (EE) gives a knowledgeable lectured which hells us knowing about syllabus and other activities and things.
+
+# 10:30-11:30 
+P2p lecture started at 10:30 with basic of our subject and syllabus.
+
+# 11:30-12:30 
+BREAK
+
+# 12:30-2:00 (AUDITORIUM)
+Its a session by Arvind dhingra (Directer-step and incharge-TAC)
+Its a very thoughtful knowledge by arvind dhingra sir.He gives us very clearfull lecture that we should know before.
+
+# 2:00-3:00 
+Expert lecture by Mr.jasvir singh sekhon(District resource person-STEM).
+
+# 3:00-4:00  
+Lecture by Dr.Lakhvir singh khana(Incharge-CML).
+Its very understanding session for us.
 
 
 
@@ -98,6 +117,7 @@ There's a schedule for that day but classes was cancelled so that students wont 
 
 
 
+Lect
 
 
 
