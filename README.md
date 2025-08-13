@@ -111,13 +111,37 @@ Lecture by Dr.Lakhvir singh khana(Incharge-CML).
 Its very understanding session for us.
 
 
+# 7 AUGUST 
+# AUDITORIUM 
+
+# 9:30-10:30 
+Lecture by Dr.Amit kamra (incharge-DMC)
+He provied us advantage able information which helps us to do other activities even with continuing our study.
+
+# 10:30-11:30 
+Lecture by Dr.parminder singh (Dean+Student Welfare)
+He gives their valueable thoughts that can be help us many things with several ways.
+
+# 11:30-12:30
+Lecture by Dr.Randhir singh
+# Topic = Conduct of examination 
+This is a very needful session which can helps students to make their self study timetable.He tells us many other ways to scoring marks like in other activities.
+
+# 12:30-1:30 
+# BREAK 
 
 
 
 
 
 
-Lect
+
+
+
+
+
+
+
 
 
 
