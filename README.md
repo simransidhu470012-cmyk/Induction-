@@ -130,6 +130,19 @@ This is a very needful session which can helps students to make their self study
 # 12:30-1:30 
 # BREAK 
 
+# 1:30-2:30 
+Chemistry lecture by Prof.Rajvir kaur.
+Discussed about exam pattern and marks.Then discussed basic of our syllabus and chapters.Every single every single word of mam was very understanding for us.
+
+# 2:30-3:30
+P2p lecture (Room no.F-108).
+
+
+# 8 AUGUST 
+# 9:30-10:30 
+ID card formation.
+
+
 
 
 
