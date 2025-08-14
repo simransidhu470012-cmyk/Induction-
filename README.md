@@ -1,3 +1,9 @@
+# NAME = Simranjot kaur 
+# FATHER'S NAME = JAGSIR SINGH 
+# BRANCH = CSE 
+# REGISTRATION NO.25105139
+# MOBILE NUMBER = 98156-20347
+# E-MAIL = simransidhu470012@gmail.com
 # 31 JULY
 # 8:30-9:30
 Our day starts with the name of god at gurudwara sahib with kirtan.
